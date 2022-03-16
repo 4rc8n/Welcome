@@ -32,3 +32,5 @@
 That is so funny! :joy:
 
 How tall is this? :mount_fuji:
+
+:jp: :us: 🇮🇳
